@@ -36,6 +36,7 @@ Switch to drawing mode from design mode
 ![image](https://user-images.githubusercontent.com/113594316/199408705-ed302b2a-90c3-41c0-9cc4-791a93366e2a.png)
 
 ## OUTPUT
+![K RAGAPRIYAN (25014706) (EDM-4D6-1) EX 5 1_page-0001](https://github.com/user-attachments/assets/9a8d0d60-77e5-4e02-b73e-1500777834bb)
 
 
 ## RESULT:
